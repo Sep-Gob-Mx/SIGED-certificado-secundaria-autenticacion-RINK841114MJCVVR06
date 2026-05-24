@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-RINK841114MJCVVR06
+RINK841114MJCVVR06
